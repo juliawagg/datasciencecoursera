@@ -1,5 +1,0 @@
-
-
-# Ever Cool
-## Ever Ever Cool
-### Ever Ever Ever Cool
